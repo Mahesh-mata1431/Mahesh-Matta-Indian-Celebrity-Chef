@@ -1,0 +1,2 @@
+# Mahesh-Matta-Indian-Celebrity-Chef
+Mahesh Matta comes with a variety of 30 years experience and has been associated with Taj Hotels, The Orchid , Trident, ITC Grand Maratha and Hiranandani Hospital &amp; Meluha among others. With truly multiple skillset in the FnB Business space ranging Commercial kitchen to desgining signature menus to hosting telivisions show He was a Host for more than 100 episodes on Tv for Colors and Sun tv besides he is running his own venture “All about Meal”
